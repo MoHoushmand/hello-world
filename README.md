@@ -1,4 +1,4 @@
-# Hello-World. Ween - Pollo Asado (Lyrics)
+# Ween  - Pollo Asado (Lyrics)
 
 Come on, it's a beautiful night for a walk on the beach, wouldn't you say? 
 Yes, I would say that, I would say that
